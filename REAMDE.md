@@ -1,0 +1,1 @@
+this is cam qrcode to pc
